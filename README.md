@@ -1,1 +1,1 @@
-Güncel versiyon mevcut
+Güncel sürüm mevcut
